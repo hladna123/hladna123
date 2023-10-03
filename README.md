@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning english language
 - BE PATIENT WITH ME because i will be
 - THE KEY IS KNOWLEDGE
+  ....
 
 
 <!---
