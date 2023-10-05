@@ -2,6 +2,7 @@
 - 👀 I’m interested in my lifejourney ...
 - 🌱 I’m currently learning english language
 - BE PATIENT WITH ME because i will be
+- I WILL
 
 
 <!---
