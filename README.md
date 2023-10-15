@@ -2,7 +2,8 @@
 - 👀 I’m interested in my lifejourney ...
 - 🌱 I’m currently learning english language
 - BE PATIENT WITH ME because i will be
-- I WILL be Aurora and you will be mine John Snow or Brandon Stark 
+- I WILL be Aurora and you will be mine John Snow or Brandon Stark
+- you can choose your role 
 
 
 <!---
