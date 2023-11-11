@@ -7,6 +7,7 @@
 - whateve
 - - whenever
   - wherever
+  - whoever
 
 
 <!---
