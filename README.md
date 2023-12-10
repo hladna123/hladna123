@@ -6,7 +6,7 @@
 - you can choose your role in the matrix or be matrix
 - or be like NEO
 - - Neo is king of github
-  - thank you neo for your service in github 
+    
 <!---
 hladna123/hladna123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
