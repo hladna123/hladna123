@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning english language
 - BE PATIENT WITH ME because i will be WITH YOU 
 - GRIND EVERY TIME 
-- OR LET IT GO 
+- OR LET IT GO
+- HAHUHI
 
 
   
